@@ -1,0 +1,1 @@
+# Agentic-AI-Franchise-Management-Assistant
